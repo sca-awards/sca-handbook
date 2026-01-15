@@ -9,7 +9,7 @@ title: 3-3 Awards Committee
 
 The Awards Committee is comprised of a chair appointed by the President, with the approval of the Board of Directors, two Past Presidents (preferably to include the Immediate Past President) and at least two persons from the SCA general membership appointed by the President. A Past President currently serving on the Board may not be appointed chair.
 
-Current awards include: The Sustained Service Award, the James V. Mink Scholarship Award, the Career Achievement Award, the Walter P. Gray III Scholarship, the Archives Appreciation Award, the Lynn A. Bonfield Professional Development Award, the Advancing Equity: Graduate Education Scholarship, and the Advancing Equity: Continuing Education Funding.
+Current awards include: The Sustained Service Award, the James V. Mink Scholarship Award, the Career Achievement Award, the Archival Award of Excellence, the Walter P. Gray III Scholarship, the Archives Appreciation Award, the Lynn A. Bonfield Professional Development Award, the Advancing Equity: Graduate Education Scholarship, and the Advancing Equity: Continuing Education Funding.
 
 ## Responsibilities
 
@@ -30,10 +30,10 @@ General responsibilities are outlined in Handbook section 3-1.
     - Mink (up to two lunches may be awarded),
     - Advancing Equity: Graduate Education Scholarship (one lunch awarded),
     - Career Achievement (one lunch awarded),
-    - and Archival Award of Excellence (co-sponsored by CHRAB) - one lunch for individual awardee and up to two lunches for organizational.
+    - and Archival Award of Excellence - one lunch for individual awardee and up to two lunches for organizational.
 
 These costs are to be listed as committee expenses, and should be reflected in the Awards Committee’s annual budget request.
 
 ***
 
-_Revision history: 5/93 dmc, 6/93 bh, 1/05 cw/jae, 6/09 jmw, 5/11 jmw, 3/12 tep, 3/15 tep, 06/2018 llc, 04/2023 llc_
+_Revision history: 5/93 dmc, 6/93 bh, 1/05 cw/jae, 6/09 jmw, 5/11 jmw, 3/12 tep, 3/15 tep, 06/2018 llc, 04/2023 llc, 01/2026 ck_
