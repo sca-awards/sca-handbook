@@ -30,7 +30,7 @@ General responsibilities are outlined in Handbook section 3-1.
     - Mink (up to two lunches may be awarded),
     - Advancing Equity: Graduate Education Scholarship (one lunch awarded),
     - Career Achievement (one lunch awarded),
-    - and Archival Award of Excellence - one lunch for individual awardee and up to two lunches for organizational.
+    - and Archival Award of Excellence (one lunch for individual awardee and up to two lunches for organizational).
 
 These costs are to be listed as committee expenses, and should be reflected in the Awards Committee’s annual budget request.
 
