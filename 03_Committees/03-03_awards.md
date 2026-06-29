@@ -31,9 +31,11 @@ General responsibilities are outlined in Handbook section 3-1.
     - Advancing Equity: Graduate Education Scholarship (one lunch awarded),
     - Career Achievement (one lunch awarded),
     - and Archival Award of Excellence (one lunch for individual awardee and up to two lunches for organizational).
+   
+AGM Awards Luncheons only occur during in-person AGMs. Award recipients recognized during Virtual AGM years will be offered a complimentary lunch for the next subsequent AGM Awards Luncheon.
 
 These costs are to be listed as committee expenses, and should be reflected in the Awards Committee’s annual budget request.
 
 ***
 
-_Revision history: 5/93 dmc, 6/93 bh, 1/05 cw/jae, 6/09 jmw, 5/11 jmw, 3/12 tep, 3/15 tep, 06/2018 llc, 04/2023 llc, 01/2026 ck_
+_Revision history: 5/93 dmc, 6/93 bh, 1/05 cw/jae, 6/09 jmw, 5/11 jmw, 3/12 tep, 3/15 tep, 06/2018 llc, 04/2023 llc, 01/2026 ck, 06/2026 ck_
